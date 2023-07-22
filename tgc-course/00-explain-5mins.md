@@ -10,7 +10,7 @@ If dealing with modern day atheists who are completely obsolete of the Bible, th
 # Gospel Fluency notes:
 ## Ch. 1 Everyone is an Unbeliever
 - "We still have places in our lives where we don't believe God, don't trust his word, don't believe what he accomplished in Christ is enough to deal with our past, present, and future."
-- "Sanctification is moving from unbelief in Jesus toi belief in him in the everyday stuff of life"
+- "Sanctification is moving from unbelief in Jesus to belief in him in the everyday stuff of life"
 ## Ch. 2 Give Them Jesus
 - "I have met too many people who love their Bibles yet have no genuine relationship with Jesus Christ. They don't really know him. They don't really love him. They don't really worship him. Instead, they worship their Bibles. They are not growing up into maturity because they are not growing up into Christ."
 - "The motive for abstinence is not better sex in the future", "the reason we wait to have sex until we are married is because of Jesus's faithfulness to us. We are his bride, and we live to tell the story of his love for us."
